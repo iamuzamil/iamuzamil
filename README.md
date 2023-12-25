@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iamuzamil
+- 👀 I’m interested in product and industrial design
+- 🌱 I’m currently learning consumer behaviour 
+- 💞️ I’m looking to collaborate on consumer projects
+- 📫 Reach me through instagram: @iamuzamil_
